@@ -1,0 +1,1 @@
+# Krish-_2401010177_DBMS-Practical-Sheet-
